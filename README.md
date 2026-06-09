@@ -1,4 +1,3 @@
-![](https://i.postimg.cc/qv7ckByB/Untitled532-20260609030251.png)
 18 soon 2 be 19
 
 
@@ -11,3 +10,5 @@ im dogshit at remembering names / dates & cannot hold conversations for the life
 
 cuddle me even if i have dni in my name. 
 
+
+![](https://i.postimg.cc/qv7ckByB/Untitled532-20260609030251.png)
